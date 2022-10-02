@@ -1,8 +1,8 @@
-## Who is Cooper Teare?
+# Who is Cooper Teare?
 
-Cooper Teare is a former University of Oregon Duck and is currently racing professional as a distance runner for Nike.
+Cooper Teare is a former University of Oregon Duck and is currently racing professionally as a distance runner for Nike.
 
-# Collegiate Accomplishments
+## Collegiate Accomplishments
 
 As a Duck, Cooper Teare won two NCAA titles:
 - Outdoor 5000 meters - 13:12.27 (2021)
