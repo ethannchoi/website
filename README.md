@@ -26,3 +26,4 @@ Professional Career:
 - US 1500 meters Champion - 3:45.86 (2022)
 
 ![Cooper Teare winning the US 1500 meter finals](cooper-teare-reacts-after-winning-the-mens-1500-meter-final-news-photo-1657811769.jpg)
+_Cooper Teare winning the US 1500 meter finals_
