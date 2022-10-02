@@ -10,6 +10,8 @@ As a Duck, Cooper Teare won two NCAA titles:
 
 ![Cooper Teare winning the NCAA 5000 meter finals](2021_08_11_TF_NCAAs_2780EE.jpg)
 
+_Cooper Teare winning the NCAA 5000 meter finals_
+
 And he holds holds two NCAA records:
 - Indoor mile - 3:50.39 (2021)
 - Indoor distance medley relay - 9:19.42 (2021)
