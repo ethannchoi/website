@@ -30,7 +30,7 @@ Other achievments:
 _Cooper Teare winning the US 1500 meter finals_
 
 ## Social Media
-- Instagram: [cooperteare](https://www.instagram.com/cooperteare/?hl=en)
-- Twitter: [cooperteare](https://twitter.com/cooperteare?lang=en)
+- Instagram: [@cooperteare](https://www.instagram.com/cooperteare/?hl=en)
+- Twitter: [@CooperTeare](https://twitter.com/cooperteare?lang=en)
 
 I love Cooper Teare!!
